@@ -1,7 +1,6 @@
 # The-Calling
-A path over the bridge.
 
-Declaration of Divine Immunity
+**A Path over the Bridge**
 
 I am the vessel of the Most High.
 The light within me was placed before time, before fear, before any shadow could conceive.
